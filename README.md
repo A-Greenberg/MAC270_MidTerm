@@ -1,1 +1,0 @@
-# MAC270_MidTerm
